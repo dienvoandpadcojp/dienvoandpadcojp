@@ -3,3 +3,7 @@
 - 📫 You can reach me via my email address: dien.vo@andpad.co.jp
 - 😄 Pronouns: Mr.
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
+
+
+> The superior man understands what is right; the inferior man understands what will sell.
+> - Confucius
