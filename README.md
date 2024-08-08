@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> The superior man understands what is right; the inferior man understands what will sell.
-> - Confucius
+> Difficulties are things that show a person what they are.
+> - Epictetus
