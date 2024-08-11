@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Change your life today. Don't gamble on the future, act now, without delay.
-> - Simone de Beauvoir
+> The great myth of our times is that technology is communication.
+> - Libby Larsen
