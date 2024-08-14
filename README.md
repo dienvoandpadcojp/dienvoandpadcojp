@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Science is organized knowledge. Wisdom is organized life.
-> - Immanuel Kant
+> If you do not change direction, you may end up where you are heading.
+> - Laozi
