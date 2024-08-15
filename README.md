@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> If you do not change direction, you may end up where you are heading.
-> - Laozi
+> You cannot be lonely if you like the person you're alone with.
+> - Wayne Dyer
