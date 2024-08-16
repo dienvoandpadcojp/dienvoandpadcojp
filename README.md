@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> You cannot be lonely if you like the person you're alone with.
-> - Wayne Dyer
+> If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.
+> - Vince Lombardi
