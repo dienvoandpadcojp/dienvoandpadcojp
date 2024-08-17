@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.
-> - Vince Lombardi
+> Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
+> - Abraham Lincoln
