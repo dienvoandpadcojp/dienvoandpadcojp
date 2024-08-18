@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
-> - Abraham Lincoln
+> Everyone has been made for some particular work, and the desire for that work has been put in every heart.
+> - Rumi
