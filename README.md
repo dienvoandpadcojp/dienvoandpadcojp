@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Everyone has been made for some particular work, and the desire for that work has been put in every heart.
-> - Rumi
+> All achievements, all earned riches, have their beginning in an idea.
+> - Napoleon Hill
