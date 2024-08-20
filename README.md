@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> All achievements, all earned riches, have their beginning in an idea.
-> - Napoleon Hill
+> Nothing but heaven itself is better than a friend who is really a friend.
+> - Plautus
