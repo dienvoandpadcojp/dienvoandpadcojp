@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Nothing but heaven itself is better than a friend who is really a friend.
-> - Plautus
+> Once you label me you negate me.
+> - Søren Kierkegaard
