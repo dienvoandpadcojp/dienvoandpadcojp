@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Once you label me you negate me.
-> - Søren Kierkegaard
+> The more you like yourself, the less you are like anyone else, which makes you unique.
+> - Walt Disney
