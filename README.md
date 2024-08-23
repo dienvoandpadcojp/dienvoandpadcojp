@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> The more you like yourself, the less you are like anyone else, which makes you unique.
-> - Walt Disney
+> If you want to kill any idea in the world, get a committee working on it.
+> - Charles F. Kettering
