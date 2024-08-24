@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> If you want to kill any idea in the world, get a committee working on it.
-> - Charles F. Kettering
+> No man can succeed in a line of endeavor which he does not like.
+> - Napoleon Hill
