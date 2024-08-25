@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> No man can succeed in a line of endeavor which he does not like.
-> - Napoleon Hill
+> Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
+> - Cicero
