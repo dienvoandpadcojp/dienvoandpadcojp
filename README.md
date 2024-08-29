@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Knowledge without justice ought to be called cunning rather than wisdom.
-> - Plato
+> Those who will play with cats must expect to be scratched.
+> - Miguel de Cervantes
