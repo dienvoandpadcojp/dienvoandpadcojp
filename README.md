@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Those who will play with cats must expect to be scratched.
-> - Miguel de Cervantes
+> I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is.
+> - Alan Watts
