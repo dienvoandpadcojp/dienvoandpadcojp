@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
-> - Kahlil Gibran
+> A man's growth is seen in the successive choirs of his friends
+> - Ralph Waldo Emerson
