@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Don't look back. Something might be gaining on you.
-> - Satchel Paige
+> You can observe a lot just by watching.
+> - Yogi Berra
