@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> You can observe a lot just by watching.
-> - Yogi Berra
+> Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
+> - Chanakya
