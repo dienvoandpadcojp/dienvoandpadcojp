@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
-> - Chanakya
+> When you doubt your power, you give power to your doubt.
+> - Honoré de Balzac
