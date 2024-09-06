@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> When you doubt your power, you give power to your doubt.
-> - Honoré de Balzac
+> Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+> - Blaise Pascal
