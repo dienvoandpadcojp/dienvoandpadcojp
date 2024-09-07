@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
-> - Blaise Pascal
+> Setting an example is not the main means of influencing another, it is the only means.
+> - Albert Einstein
