@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> Setting an example is not the main means of influencing another, it is the only means.
-> - Albert Einstein
+> There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
+> - Dalai Lama
