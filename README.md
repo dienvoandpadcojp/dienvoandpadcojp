@@ -5,5 +5,5 @@
 - ⚡ Fun fact: The longest distance I have swum is 10 kilometers (in a pool) and 5 kilometers (in the sea).
 
 
-> It does not matter how slowly you go as long as you do not stop.
-> - Confucius
+> There are many ways of going forward, but only one way of standing still.
+> - Franklin D. Roosevelt
