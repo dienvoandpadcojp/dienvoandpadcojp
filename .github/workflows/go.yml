@@ -4,9 +4,9 @@
 name: Go
 
 on:
-  schedule:
+  # schedule:
     # This will run every day at 09:30 UTC+7
-    - cron: '30 2 * * *'
+    # - cron: '30 2 * * *'
   push:
     branches: [ "main" ]
 
